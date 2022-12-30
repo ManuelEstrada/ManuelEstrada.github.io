@@ -1,5 +1,7 @@
-Here you can say lots of fun things about your site.
+Welcome to my Blog!
 
-Maybe say a some things about yourself.
+This blog is intended to share some of my work and personal stuff.
 
-Or maybe what you plan to blog about.
+Hope you like it!
+
+Manny
