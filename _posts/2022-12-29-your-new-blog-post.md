@@ -12,17 +12,17 @@ Pero todo viene desde un pricipio básico sobre el amor. ¿ Qué es el amor?. Pa
 
 Enseñanza (individual y entre ambos, o colectiva),
 
-empatía,
+*empatía,
 
-caridad,
+*caridad,
 
-amabilidad,
+*amabilidad,
 
-lealtad,
+*lealtad,
 
-paciencia,
+*paciencia,
 
-...
+*...
 
 Primer punto claro, red flag, soy un romántico sin remedio. Parecería algo bueno, pero, irónicamente, es un gran problema. La Rochefoucauld dijo alguna vez: " Existen algunas personas que nunca se hubieran enamorado si nunca hubieran escuchado de tal cosa".
 
@@ -40,13 +40,13 @@ Algo es obvio, ¿qué tanto de entendimiento mutuo significa amor? Creo que no e
 
 Para entenderlo, quizá, sólo quizá, existe una componente individual que es fundamental: hay que aprender cómo amar. Suena difícil, y es tan subjetivo como la moral, pero seguramente contiene ciertos pilares:
 
-Como mantener las expectativas,
+*Como mantener las expectativas,
 
-crear una estructura de cómo amar a alguien correctamente,
+*crear una estructura de cómo amar a alguien correctamente,
 
-querer ser un mejor amante,
+*querer ser un mejor amante,
 
-positivismo y humor (cómo aceptar las cosas y enfrentarnos a ellas).
+*positivismo y humor (cómo aceptar las cosas y enfrentarnos a ellas).
 
 Por otro lado, existen dos cosas importantes: ¿por qué elijo al tipo de personas a las cuales lo hago?, no porque sean malas o buenas, simplemente el porqué, y entonces ¿qué debería buscar?. De ellas se derivan varias situaciones que deberían estar dentro de nuestro autoconocimiento básico, saber cuáles son nuestras "red flags", nuestros intereses y que tipo de personas necesitamos.
 
@@ -54,7 +54,7 @@ Por otro lado, existen dos cosas importantes: ¿por qué elijo al tipo de person
 
 Autosabotearnos nos encanta. Vivimos la vida tomando decisiones malas a sabiendas de ello, pensando que sólo porque la vida es corta no debemos reprimirlas. Eso es medianamente correcto, y medianamente fatal. Por lo general, aprendemos de nuestros errores, pero tropezar con una piedra después de verla no nos hace más valientes, sino más necios. ¿Por qué no puedo querer a aquella persona que tanto me quiere, a pesar de saber que se merece aún más de lo que yo le puedo dar?.
 
-Mark Twain dijo alguna vez "Nunca intentes enseñar a un cerdo a cantar. Será una pérdida de tiempo y enojará al cerdo".
+Mark Twain dijo alguna vez _"Nunca intentes enseñar a un cerdo a cantar. Será una pérdida de tiempo y enojará al cerdo"_.
 
 Ser más valientes es necesario, pues el amor también es un poco de fe. Confiar en las cosas no te hace más iluso, aunque tampoco más inteligente, si nos da más esperanza. Un poco de confianza nos ayuda a ajustar los pasos, confiar en lo que queremos y en lo que sentimos no nos hace más tontos, pero es claro que no debemos de ser tan ciegos.
 
@@ -64,4 +64,4 @@ Dicho esto, no sólo queda la tendencia a pensar las cosas, a tener un corazón,
 
 Tratemos de ser mejores, hacerlo lo mejor que podamos, el esfuerzo no implica el éxito de nada, pero sí disminuye la frustración. El fracaso no te da menos valor, ni te hace inútil, ni te hace malo en nada de nada, sólo nos hace más humanos, más sabios y empáticos. Ser un buen partido es algo subjetivo, depende de los ojos que nos vean. Recordemos qué:
 
-"El amor genuino involucra a dos
+_"El amor genuino involucra a dos personas ayudándose la una a la otra a convertirse en la mejor versión de sí misma"_.
